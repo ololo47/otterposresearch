@@ -214,7 +214,7 @@
 - 2018년: **45.6%**
 - **6년 연속 감소세**
 
-**출처:** [뉴케랄라 - 한식 사업체 감소](https://www.newkerala.com/news/o/number-firms-korean-food-business-drops-2024-data-220)
+**출처:** [서울경제 - 한식 사업체 50.5만개, 1년새 8,300여개 감소](https://www.sedaily.com/NewsView/2GVIY0QFKK), [대한민국 정책브리핑 - 2024 한식산업 실태조사](https://www.korea.kr/briefing/pressReleaseView.do?newsId=156700338), [푸드투데이 - 한식산업 실태조사 결과](https://www.foodtoday.or.kr/news/article.html?no=196580)
 
 ### 한식 프랜차이즈 (공정거래위원회)
 
